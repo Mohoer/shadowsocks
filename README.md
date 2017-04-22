@@ -1,1 +1,1 @@
-Removed according to regulations.
+@clowwindy, Are you OK?
